@@ -1,6 +1,8 @@
 ## **ren ٭ joker**
 
 ![giphy](https://github.com/renaster/renaster/assets/163688658/ae2a1203-5801-49f2-8fa7-143b7fc93626)
+![persona-5-attribute-star-full-color-mug](https://github.com/renaster/renaster/assets/163688658/d4432785-d860-45f9-8668-c986baf00498)
+
 
 -----
 
