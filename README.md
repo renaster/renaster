@@ -1,5 +1,5 @@
 <p align="center">
-  ![giphy](https://github.com/renaster/renaster/assets/163688658/65ce5231-3e26-4880-821b-52b444f0e832)
+![giphy](https://github.com/renaster/renaster/assets/163688658/65ce5231-3e26-4880-821b-52b444f0e832)
 </p>
 ----
 
