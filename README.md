@@ -18,3 +18,5 @@ You may be asking yourself why these are on my dni; here are explanations:
 - DSMP- Fandom is weird and the people involved are problematic.
 
 Thanks for understanding!
+![pngegg (1)](https://github.com/renaster/renaster/assets/163688658/9044048a-b86c-4fdc-912d-136b8d9ab870)
+
