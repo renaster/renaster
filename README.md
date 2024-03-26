@@ -1,6 +1,7 @@
 ![giphy](https://github.com/renaster/renaster/assets/163688658/c9e0ff38-a7c9-4de1-993d-579d0c1ed4f1)
 ----
-![pngegg](https://github.com/renaster/renaster/assets/163688658/b030d33e-6f5d-4c50-a61b-21a35ffec6c4)feel free to int; especially if these are your interests!
+
+feel free to int; especially if these are your interests!
 - Persona, NSO, Zeno, Bandori -w-
 
 dni if:
