@@ -2,6 +2,7 @@
 ----
 feel free to int; especially if these are your interests!
 - Persona, NSO, Zeno, Bandori -w-
+
 dni if:
 - homophobic/transphobic; I'm literally trans and in a mlm relationship.
 - racist; it's not cool, and yes you can be racist even if you aren't white.
