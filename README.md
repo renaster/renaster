@@ -1,7 +1,5 @@
-<p align="center">
- <![giphy](https://github.com/renaster/renaster/assets/163688658/056a4f96-17db-4d9c-9915-4bd94f60f4e7)/>
-</p>
-----
+![giphy](https://github.com/renaster/renaster/assets/163688658/ae2a1203-5801-49f2-8fa7-143b7fc93626)
+-----
 
 feel free to int; especially if these are your interests!
 - Persona, NSO, Zeno, Bandori -w-
@@ -20,5 +18,4 @@ You may be asking yourself why these are on my dni; here are explanations:
 - DSMP- Fandom is weird and the people involved are problematic.
 
 Thanks for understanding!
-![pngegg (1)](https://github.com/renaster/renaster/assets/163688658/9044048a-b86c-4fdc-912d-136b8d9ab870)
-
+![this-made-me-giggle-so-im-sharing-it-v0-bbyni9d7k3qa1](https://github.com/renaster/renaster/assets/163688658/20760ee9-ff2e-4068-8556-2f9d3775a1a8)
