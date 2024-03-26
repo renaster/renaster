@@ -9,9 +9,11 @@ dni if:
 - weird skins; it isn't funny, and it doesn't excuse harassment.
 - weird person; do NOT ask me if I want to be your girlfriend/boyfriend. I am a man and I am in a relationship. This has happened too many times.
 - Dead Plate/Evevator Hitch, Okegom, Ranfen, and DSMP.
+
 You may be asking yourseelf why these are on my dni; here are explanations:
 - The Dead Plate/Elevator Hitch- Forced mlm.
 - Okegom- self explanitory.
 - Ranfren- Slurs, an asain character is literally named "Rat" HELLO????, Pro-ships (canon or not it's disgusting.)
 - DSMP- Fandom is weird and the people involved are problematic.
+
 Thanks for understanding!
