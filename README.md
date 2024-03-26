@@ -1,8 +1,10 @@
+<p align="center">
 # **ren ٭ joker**
-
+</p>
 ![giphy](https://github.com/renaster/renaster/assets/163688658/ae2a1203-5801-49f2-8fa7-143b7fc93626)
 
 -----
+
 
 feel free to int; especially if these are your interests!
 - Persona, NSO, Zeno, Bandori -w-
