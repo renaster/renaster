@@ -1,6 +1,6 @@
 <p align="center">
  <img src="![giphy](https://github.com/renaster/renaster/assets/163688658/8a8b8669-e247-4940-a88e-783421839329)
-" alt="animated" />
+" />
 </p>
 ----
 
