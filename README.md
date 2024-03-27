@@ -7,6 +7,7 @@
 
 feel free to int; especially if these are your interests!
 - Persona, NSO, Zeno, Bandori -w-
+
 recommend me media, as I am always searching for new interests! <3
 
 dni if:
