@@ -1,6 +1,5 @@
 # **<p align="center">ren ٭ joker<p align="center">**
 
- ![giphy](https://github.com/renaster/renaster/assets/163688658/ec784831-833b-4b6e-ab8d-014dfb8213ad)
 
 
 -----
