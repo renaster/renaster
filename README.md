@@ -8,7 +8,8 @@
 
 
 
-feel free to int; especially if these are your interests!
+feel free to int; especially if these are your interests! 
+
 - Persona, NSO, Zeno, Bandori -w-
 
 recommend me media, as I am always searching for new interests! <3
@@ -29,4 +30,5 @@ Thanks for understanding!
 
 -----
 
-![output-onlinegiftools](https://github.com/renaster/renaster/assets/163688658/4cd8ed41-f692-41b5-9d51-0c9eef32586c)
+![91aeb3eb9ee689f540fe097478fc6317](https://github.com/renaster/renaster/assets/163688658/c3882e50-982b-41f7-9e26-55d303cc98a4)
+
