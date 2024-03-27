@@ -1,6 +1,8 @@
 # **<p align="center">ren ٭ joker<p align="center">**
 
-<img align="center" src= "https://github.com/renaster/renaster/assets/163688658/a868f332-bca3-447f-b892-8c9dc1db01f6)">
+-----
+
+<img align="center" src="https://github.com/renaster/renaster/assets/163688658/fc1c28cb-7291-43ca-8e48-c28163ca5942">
 
 -----
 
