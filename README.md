@@ -1,8 +1,7 @@
 # **<p align="center">ren ٭ joker<p align="center">**
 
------
+ ![giphy](https://github.com/renaster/renaster/assets/163688658/ec784831-833b-4b6e-ab8d-014dfb8213ad)
 
-<img align="center" src="https://github.com/renaster/renaster/assets/163688658/fc1c28cb-7291-43ca-8e48-c28163ca5942">
 
 -----
 
@@ -26,7 +25,4 @@ Thanks for understanding!
 
 -----
 
-![this-made-me-giggle-so-im-sharing-it-v0-bbyni9d7k3qa1](https://github.com/renaster/renaster/assets/163688658/20760ee9-ff2e-4068-8556-2f9d3775a1a8)
-
-![shuake-persona-5](https://github.com/renaster/renaster/assets/163688658/afeae3ab-e5b8-480b-9146-1acd686b146b)
-
+![output-onlinegiftools](https://github.com/renaster/renaster/assets/163688658/4cd8ed41-f692-41b5-9d51-0c9eef32586c)
