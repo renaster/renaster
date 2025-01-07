@@ -25,7 +25,7 @@
 
 feel free to int; especially if these are your interests! 
 
-- Persona, NSO, The Summer Hikaru Died, Zeno, Bandori -w-
+- Persona, NSO, Zeno, Bandori -w-
 
 recommend me media, as I am always searching for new interests! <3
 
