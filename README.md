@@ -25,7 +25,7 @@
 
 feel free to int; especially if these are your interests! 
 
-- Persona, NSO, Zeno, Cookie Run Kingdom -w-
+- Persona, NSO, Zeno, Cookie Run Kingdom, IDV -w-
 
 recommend me media, as I am always searching for new interests! <3
 
