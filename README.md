@@ -21,11 +21,11 @@
 ![tumblr_223a9155900fb4144f5c239aa31a5638_f8e46f66_100](https://github.com/renaster/renaster/assets/163688658/c358dc29-58ea-438b-a477-e128ac0e4939)
 ![tumblr_pcjpoi4MM51wpplaao2_100](https://github.com/renaster/renaster/assets/163688658/c282a427-99d9-478a-822d-172dab79a688)
 
-
+IRL Joker and Pure Vanilla.
 
 feel free to int; especially if these are your interests! 
 
-- Persona, NSO, Zeno, Bandori -w-
+- Persona, NSO, Zeno, Cookie Run Kingdom -w-
 
 recommend me media, as I am always searching for new interests! <3
 
